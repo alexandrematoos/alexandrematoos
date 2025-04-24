@@ -1,6 +1,6 @@
 # 💫 About Me:
 <br>Sou formado em Ciência da Computação pela Faculdade Pitágoras em Teixeira de Freitas, fiz um MBA em Análise de Projetos de T.I pela FAVENI. Tive a oportunidade de trabalhar em diversas áreas com isso pude desenvolver a empatia, agilidade e organização e ter boa comunicação interpessoal. Com o passar do tempo e as experiências no mercado de trabalho, pude melhorar a resolução de conflitos e desafios propostos pela empresa. Sempre tive a paixão de trabalhar com pessoas e poder evoluir e ajudar a empresa a cada dia.
-. <br>
+ <br>
 
 
 ## 🌐 Socials:
